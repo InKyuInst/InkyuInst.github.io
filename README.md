@@ -1,0 +1,1 @@
+# inkyuinst.github.io
